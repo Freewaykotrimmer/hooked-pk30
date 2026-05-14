@@ -1,4 +1,4 @@
-#  
+#  advanced hooked Scripts offers the most advanced hooked Script, with speed and esp. Perfect for dominating any match.
 
 
 
